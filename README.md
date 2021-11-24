@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: jasper.geer@gmail.com
 - 😄 Pronouns: he/him/his
 <!-- - ⚡ Fun fact: ... -->
--->
